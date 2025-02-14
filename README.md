@@ -1,0 +1,1 @@
+# synkrama_tech_task
